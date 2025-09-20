@@ -1,1 +1,1 @@
-just colledge stuff
+University stuff
